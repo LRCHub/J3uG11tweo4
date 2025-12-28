@@ -1,0 +1,89 @@
+# ケタチガイ – 無礼King
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Hello people!!
+超うざい!C級のポークサイズ
+お前がみてるものが
+正しい的な価値がマジ臭い
+あわやデッドライン
+ネガにネガを混ぜたライス
+腹の足しにならないね
+興味もないようなTalk show
+逆にLecture
+コメンテーターばりのREC 1
+とKickin' the verse
+響かせるがまま
+隣のReal friend踊り出しBounce
+授業料もついでに2
+Million million many more
+Left side right side
+耳こじ開け聴いときなよOn&On
+口数減らない輩にこの
+BOMB hot song
+鬼さんこちらさClap your hands
+いけしゃあしゃあ
+生きてるあんたへ
+ドタマぶち抜くこの独壇場の
+Show time
+ほら無礼King
+無礼講 哀れなKaren
+This one please 能動的な
+This one please 盲目的な
+まるでNew game
+もしか運命的な救命
+踊ってようぜ
+右も左も上機嫌でもう
+独壇場のShow time
+Pick me pick me NO
+Pick me pick me damn!
+ナンセンス ナンセンスもう
+反省 反省だ
+Whoopee whoopee YES!
+Boogie woogie hey!
+Up and downなDance
+完璧なプラン
+これはその凝り固まった脳を
+シェイクさせるExercise time
+お値段プライスレスで
+オンデマンドVerse
+不安もふわっと
+ぱっと消える魔球
+バキュン撃ち抜く
+Brand new shots
+ちょっと強引もういい?
+ヒーヒー言わす
+Left side right side
+キリがないね終われないOn&On
+大層なご身分で
+飼い慣らされてる
+アクセサリーチェーン
+ちゃんちゃんばらばら
+How you feel?
+これ以上はもうつまらないね
+ならなおのことこの圧倒的な
+Show time
+ほら無礼King
+無礼講 哀れなKaren
+This one please 能動的な
+This one please 盲目的な
+まるでNew game
+もしか運命的な救命
+踊ってようぜ
+右も左も大差ないね
+この圧倒的なShow time
+着々とかつバクバクと食う
+右から左にワクワク跳ねさせる
+1. 2. 3. 4 イニミニマニモ
+みるみる間にも虜になりそう
+ださいあいつのTalkに
+耳を塞いでるよりも
+フル無視あっかんべーだな
+グータラグータラ生きてる間に
+こちとらBounce&Bounce
+ほら無礼King 無礼King
+かつ無礼講 無礼講
+かつ無礼King 無礼King
+無礼King 無礼King This one
+```
