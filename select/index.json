@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "無礼King",
+  "base_artist": "ケタチガイ",
+  "createdAt": "2025-12-28T05:26:28.546883Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "無礼King",
+      "artist": "ケタチガイ",
+      "has_synced": false,
+      "path": "select/pl_01_無礼King_ケタチガイ.txt"
+    }
+  ]
+}
